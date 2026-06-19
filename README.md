@@ -13,4 +13,4 @@ WHAT I AM WORKING RIGHT NOW -
 - SOLVING DAILY CODING PROBLEMS TO KEEP LOGIC SHARP
 
 LETS CONNECT 🤝
-Email 📧 : manthanbariya28@gmail.com
+Email 📧 : manthanbariya10@gmail.com
